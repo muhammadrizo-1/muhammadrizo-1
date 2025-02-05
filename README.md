@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i'm interested in 3d modelling too
-- you can find me on telegram: https://telegram.com/@im_0720
+- you can find me on telegram: https://t.me/@im_0720
 - here is my youtube channel: www.youtube.com/@toxic11x
 
 <!---
